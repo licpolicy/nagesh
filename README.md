@@ -1,3 +1,1 @@
-# nagesh
-LIC New Money Back Plan – 25 Years
-<P>LIC</P>
+<p>L<a href="http://www.policyforum.in/lic-new-money-back-plan-25-years/" target="_blank" rel="noreferrer noopener">IC New Money Back Plan - 25 Years</a> is a Money Back Plan non-linked life insurance policy Guaranteed returns SB.. and bonus. Premium paid in this plan needs to be paid</p>
